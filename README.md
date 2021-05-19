@@ -1,1 +1,1 @@
-My favourite Dish is Kadhai Chicken 
+My favourite Dish is Kadai Chicken 
